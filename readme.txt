@@ -1,0 +1,1 @@
+Ei Plugin A Dekano Hoyese Kivabe Indivisual Post URL Ke Use Kore Oi Post Er jonno QR Code Generate Korte Hoy! Amaging
